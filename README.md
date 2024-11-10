@@ -22,6 +22,8 @@
 #<center>안녕</center>
 
 
+<p style="text-align: center; color: white;">Hey Tech</p>
+
 <center>
 ![맛스타인가 뭐시기에유 ㅎㅎ]
 (https://www.instagram.com/kokoball8686/)
