@@ -25,9 +25,9 @@
 </div>
 <div align=center>	
   
-### [레딧의 제 개인채널이에유~~](https://www.reddit.com/r/CloudHybrid02/)
+## [레딧의 제 개인채널이에유~~](https://www.reddit.com/r/CloudHybrid02/)
 </div>
 <div align=center>
 
-### [저에게 이메일 보내실분은 여기를 눌러유~~](https://mail.google.com/mail/?view=cm&amp;fs=1&amp;to=kokoball8686@gmail.com)
+## [저에게 이메일 보내실분은 여기를 눌러유~~](https://mail.google.com/mail/?view=cm&amp;fs=1&amp;to=kokoball8686@gmail.com)
 </div>
