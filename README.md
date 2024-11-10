@@ -15,25 +15,13 @@
 아래에다가는 요즘 젊은 친구들이 자주 한다능~~~!(사실 제가 젊어진거 같아서 무척 기분이 좋음!!) 에스앤에스??? 뭐 고런것을 함 올려보도록 하지요 ㅎㅎ
 
 
-### [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
 
-###<center>ㅇㅇ</center>  
 <div align=center>	
-  
 ### [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
-  
 </div>
-#<center>안녕</center>
-
-
-<p style="text-align: center; color: white;">Hey Tech</p>
-
-<center>
-![맛스타인가 뭐시기에유 ㅎㅎ]
-(https://www.instagram.com/kokoball8686/)
-</center>  
-
-
+<div align=center>	
 ### [레딧의 제 개인채널이에유~~](https://www.reddit.com/r/CloudHybrid02/)
-
+</div>
+<div align=center>	
 ### [저에게 이메일 보내실분은 여기를 눌러유~~](https://mail.google.com/mail/?view=cm&amp;fs=1&amp;to=kokoball8686@gmail.com)
+</div>
