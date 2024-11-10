@@ -17,5 +17,8 @@
 
 
 
-### [인스타](https://www.instagram.com/kokoball8686/)
+### [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
 
+### [레딧의 제 개인채널이에유~~](https://www.reddit.com/r/CloudHybrid02/)
+
+### [저에게 이메일 보내실분은 여기를 눌러유~~](mailto:kokoball8686@gmail.com)
