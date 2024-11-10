@@ -17,7 +17,7 @@
 
 
 
-### [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
+### <p style="text-align: center; color: white;"> [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/) </p>
 
 ### [레딧의 제 개인채널이에유~~](https://www.reddit.com/r/CloudHybrid02/)
 
