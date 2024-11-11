@@ -20,8 +20,9 @@
 
 
 <div align=center>	
-  
-## [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
+
+## [저에게 이메일 보내실분은 여기를 눌러유~~](https://mail.google.com/mail/?view=cm&amp;fs=1&amp;to=kokoball8686@gmail.com)
+
 </div>
 <div align=center>	
   
@@ -29,5 +30,5 @@
 </div>
 <div align=center>
 
-## [저에게 이메일 보내실분은 여기를 눌러유~~](https://mail.google.com/mail/?view=cm&amp;fs=1&amp;to=kokoball8686@gmail.com)
+## [맛스타인가 뭐시기에유 ㅎㅎ](https://www.instagram.com/kokoball8686/)
 </div>
